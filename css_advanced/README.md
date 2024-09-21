@@ -6,3 +6,4 @@
 ![part_3_free_membership](https://github.com/user-attachments/assets/a3693947-7903-45e9-8599-d138cb0b65a0)
 ![part_4_FAQ (1)](https://github.com/user-attachments/assets/0153ea33-4f77-484d-bae3-a8a222b31c3a)
 ![part_5_footer](https://github.com/user-attachments/assets/e15d9985-e59d-40a7-b21f-98aee9a50b60)
+![main_part](https://github.com/user-attachments/assets/c0f5fe3b-46be-4d13-8e23-dcfa05bf3a7d)
