@@ -1,1 +1,8 @@
-
+![part_1_testimonials](https://github.com/user-attachments/assets/f1a58c7e-114b-44bd-bec7-b774336f6ebf)
+![logo](https://github.com/user-attachments/assets/6b4bac11-03e8-4c02-a7db-1fecc3fba333)
+![Get schooled](https://github.com/user-attachments/assets/83412f62-5ede-49d9-af1a-48b90098e216)
+![423686522_940809007756364_6282862984958178131_n](https://github.com/user-attachments/assets/f1e81805-6d31-4046-8b1e-d1e8e4e2f32d)
+![part_2_tutorials](https://github.com/user-attachments/assets/37e64550-1992-45ec-9abc-3fc8730cf8ab)
+![part_3_free_membership](https://github.com/user-attachments/assets/a3693947-7903-45e9-8599-d138cb0b65a0)
+![part_4_FAQ (1)](https://github.com/user-attachments/assets/0153ea33-4f77-484d-bae3-a8a222b31c3a)
+![part_5_footer](https://github.com/user-attachments/assets/e15d9985-e59d-40a7-b21f-98aee9a50b60)
